@@ -1,0 +1,2 @@
+# portofilio-dinamis
+portofilio dinamis
